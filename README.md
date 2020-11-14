@@ -9,3 +9,8 @@ I hope to be able to learn valuable tools in order to do well in a career in Fin
 I chose FinTech because of the impact it is having in today's business environment. 
 
 Hope everyone is having a great day so far!
+
+# Hello!
+
+
+
